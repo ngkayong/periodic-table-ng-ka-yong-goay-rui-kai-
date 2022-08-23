@@ -1,0 +1,1 @@
+# periodic-table-ng-ka-yong-goay-rui-kai-
